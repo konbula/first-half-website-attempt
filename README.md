@@ -1,2 +1,2 @@
 # first-half-website-attempt
-not good, but it will get MUCH better
+First website attempt at age 15
